@@ -1,1 +1,0 @@
-# fic_schedule
